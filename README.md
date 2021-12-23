@@ -1,2 +1,8 @@
 # stepping-stone-algoritm
-doctor nekschot in action (1990-2021)
+
+'1990-2021'
+
+# serial killer
+https://en.wikipedia.org/wiki/Serial_killer
+
+doctor nekschot in action
